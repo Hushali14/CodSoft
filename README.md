@@ -1,3 +1,0 @@
-# Portfolio - CodSoft
-
-By Hushali
